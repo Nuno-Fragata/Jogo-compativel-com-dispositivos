@@ -1,0 +1,1 @@
+# Jogo-compativel-com-dispositivos
